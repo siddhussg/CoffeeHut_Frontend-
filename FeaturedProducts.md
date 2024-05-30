@@ -1,4 +1,3 @@
-
 Premium Arabica Blend Coffee Beans
 French Press Coffee Maker Set
 Espresso Machine with Milk Frother
